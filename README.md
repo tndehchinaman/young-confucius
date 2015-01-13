@@ -1,0 +1,2 @@
+# young-confucius
+LEARN NIGGA
